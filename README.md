@@ -1,8 +1,5 @@
 <p align="center">
-  <img width="735" height="817" alt="image" src="https://github.com/user-attachments/assets/a9fa799a-f6a5-4b10-88d1-307549a34952" />
-</p>
-‮
 
 <p align="center">
-  anti-tcc, dni if ur true larp community, go get sum fuckin help yea? 😴
+  anti-tcc, tcc dni dont even try to lie about me lad
 </p>
